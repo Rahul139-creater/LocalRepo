@@ -1,0 +1,1 @@
+Local se Remote tak
